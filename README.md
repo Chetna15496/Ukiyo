@@ -1,2 +1,2 @@
 # Ukiyo
-Happiness is all that matters. 
+Do more of what feeds your soul. 
